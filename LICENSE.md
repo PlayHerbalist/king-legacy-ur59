@@ -1,4 +1,4 @@
-
+Experience brainrot evolution like never before with vip brainrot evolution Scripts, the #1 Script. Includes auto-sell and auto-upgrade for
 
 
 
